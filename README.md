@@ -5,4 +5,4 @@
 
 - 🔭 I’m currently working on Coolmod Informática
 - 🌱 I’m currently learning DAW
-- [Twitter](https://twitter.com/CarlosRC2318)
+- Twitter : https://twitter.com/CarlosRC2318
